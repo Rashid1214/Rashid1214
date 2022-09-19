@@ -1,4 +1,4 @@
-![logo](https://github.com/Rashid1214/Rashid1214/blob/main/adakmedya%20is%20creating%203D%20Models%20%20_%20Patreon.jpg)
+![logo](https://github.com/Rashid1214/Rashid1214/blob/main/1615377%401.jpg)
 <h1 align="center">Hi 👋, I'm Rashid Ahmed</h1>
 <h3 align="center">A passionate zoologist from India</h3>
 
